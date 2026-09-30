@@ -6,4 +6,4 @@
 
 ---
 
-> **faltam do dia 18/09/26 até o dia da apresentação.: 38 dias mais o dia do evento.**
+> **faltam do dia 30/09/26 até o dia da apresentação.: 32 dias mais o dia do evento.**
